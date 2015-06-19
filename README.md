@@ -1,3 +1,3 @@
 # Hello
 
-This is my first RD
+This is my first repo.
