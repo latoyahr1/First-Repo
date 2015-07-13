@@ -1,0 +1,1 @@
+week four is finally over. time is starting to go by really fast. thanks to both the awesome teachers and the helpful class mates im getting through this.
