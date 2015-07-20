@@ -1,0 +1,1 @@
+We in week five and thanks to my new family(the class) we all made it through. I really enjoyed week five, not as hard as week four but thats ok.
